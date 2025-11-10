@@ -1,4 +1,4 @@
-## :wave: Hey there, I'm Starry, welcome to my profile! 
+## :wave: Hey there, I'm Ishaan, welcome to my profile! 
 
 <div align="center">
 
